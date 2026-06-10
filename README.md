@@ -13,7 +13,7 @@ Am iubit, am ajutat, am avut grijă de ceilalți? Am fost om?
 
 Sau poate îmi place să profit de alții. Poate vreau să fiu centrul atenției. Poate cred că toți îmi datorează ceva. Poate mă consider mai presus de ceilalți și de aceea merit?
 
-(Bănuiesc că aceea este o tabără diferită.)
+(Și bănuiesc că știu în care tabără m-aș trezi.)
 
 Judecata finală nu e o cântărire, e o recunoaștere, nu "merit?", ci "asta am devenit?".
 
