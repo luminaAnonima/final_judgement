@@ -9,7 +9,7 @@ Merit viața veșnică?
 Ce fel de om am devenit? 
 
 Am încercat să fac binele fără să cer răsplată? 
-Am iubit, am ajutat, am avut grijă de ceilalți? Am fost om?
+Am iubit, am iertat, am ajutat, am avut grijă de ceilalți? Am fost om?
 
 Sau poate îmi place să profit de alții. Poate vreau să fiu centrul atenției. Poate cred că toți îmi datorează ceva. Poate mă consider mai presus de ceilalți și de aceea merit?
 
